@@ -1,5 +1,5 @@
 ## Hi There Welcome to my Page👋:
-My name is Huy Nguyen. 🌱 I’m currently final-year student at Ton Duc Thang University. I'm looking for an oppotunity for my career
+My name is Huy.
 
 ## 📫 How to reach me:
 <img src="https://www.iconpacks.net/icons/1/free-youtube-icon-141-thumb.png" width="25"> [Youtube](https://www.youtube.com/@huuhuynguyen3025/videos)
